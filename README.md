@@ -1,3 +1,9 @@
 # school-managemnt-project
-njsnnas
-ioan modif
+
+ Oana
+oana are mere
+inca o modificare
+oana modif
+
+
+
